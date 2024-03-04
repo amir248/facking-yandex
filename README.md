@@ -1,0 +1,2 @@
+# facking-yandex
+xY(ийкраткая)!
